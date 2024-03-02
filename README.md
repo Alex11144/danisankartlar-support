@@ -1,6 +1,5 @@
 # danisankartlar-support
-# Evet-support
-support email : evetaz.baku@gmail.com                  
+support email : gasans1929@gmail.com                  
 support number : +994553826064                            
 
 F.A.Q.
